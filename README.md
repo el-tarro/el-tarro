@@ -1,6 +1,6 @@
 Don't forget to return videotapes
 - 👋 Hi, I’m @el-tarro
-- 📫 How to reach me> kevin.fcosials@
+- 📫 How to reach me> email
 - 😄 Pronouns: Dr
 - ⚡ Fun fact: Nuclear Engineering Prof.
 
